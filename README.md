@@ -35,5 +35,6 @@ Dann ist mein Kurs genau richtig für dich!
 Werde noch heute ein Profi, in der Technologie von Morgen!
 Wir sehen uns im Kurs!
 
+Das ist ein sehr guter Kurs... 
 
 \* Alle Angaben ohne Gewähr
